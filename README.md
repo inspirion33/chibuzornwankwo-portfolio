@@ -1,1 +1,1 @@
-View Live (Personal Website): 
+View Live (Personal Website): https://chibuzornwanks.netlify.app/
